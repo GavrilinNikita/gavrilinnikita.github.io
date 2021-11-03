@@ -1,1 +1,1 @@
-# About - моë резюме
+# ugnikinn.github.io
